@@ -30,7 +30,7 @@
 
 - Sei me comunicar em Libras
 
-- Sei falar um um pouco
+- Sei falar um pouco
 
 ### meu email 
 
