@@ -24,7 +24,7 @@
 
 - Amo a minha escola
 
-- Sente do escola minha antiga escola de surdos
+- Sento falta da minha antiga escola de surdos
 
 - Quero ser professor de Matematica
 
