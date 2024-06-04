@@ -16,7 +16,7 @@
 
 - Sou torcedor dos Santos
 
-- GHosto de Dançar
+- Gosto de Dançar
 
 - Gosto de beber um pouco de Vinho raramente
 
